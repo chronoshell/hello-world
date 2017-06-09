@@ -2,5 +2,5 @@
 1
 
 
-im chronoshell as goes my steam handle , ive jst started to explore so treat me well
+im chronoshell as goes my steam handle , ive jst started to explore so treat me well .
 
